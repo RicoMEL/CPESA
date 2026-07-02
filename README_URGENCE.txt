@@ -1,0 +1,1 @@
+Version urgence présidente : aucun fond photo problématique, menu mobile fonctionnel, cartes avec photos.
